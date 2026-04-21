@@ -18,4 +18,4 @@ Systems Engineering PhD (University of Pennsylvania) in optimization and control
 
 ### Elsewhere
 
-[LinkedIn](https://www.linkedin.com/in/mczargham/) · [Dynamical Systems Group](www.dynamicalsystemgroup.com) 
+[LinkedIn](https://www.linkedin.com/in/mczargham/) · [Dynamical Systems Group](www.dynamicalsystemsgroup.com) 
