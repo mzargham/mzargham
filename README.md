@@ -8,4 +8,4 @@ Systems Engineering PhD (University of Pennsylvania) in optimization and control
 
 ### Elsewhere
 
-[LinkedIn](https://www.linkedin.com/in/mczargham/) · [Dynamical Systems Group](https://www.dynamicalsystemsgroup.com) · [Google Scholar](https://scholar.google.com/citations?user=bbdc3vkAAAAJ&hl)
+[LinkedIn](https://www.linkedin.com/in/mczargham/) · [Dynamical Systems Group](https://www.dynamicalsystemsgroup.com) · [Google Scholar](https://scholar.google.com/citations?user=bbdc3vkAAAAJ&hl) · [BlueSky](https://bsky.app/profile/mzargham.bsky.social)
